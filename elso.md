@@ -1,1 +1,1 @@
-elso sor
+elso sor lépés
